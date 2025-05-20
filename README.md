@@ -5,3 +5,5 @@
 email : dyd7338@gmail.com
 
 취미 추가
+
+특기 추가가
