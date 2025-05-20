@@ -3,3 +3,5 @@
 요즘 운동에 재미붙였어요  
 
 email : dyd7338@gmail.com
+
+취미 추가
